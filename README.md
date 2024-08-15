@@ -1,5 +1,5 @@
-## Hi there 👋
-meu nome e Hellen cristina, tenho 15 anos
+## Olá bem vindo!👋
+meu nome e Hellen cristina, tenho 15 anos💚
 
 <!--
 Sou estudante na escola, E.E parque Jurema 3.
